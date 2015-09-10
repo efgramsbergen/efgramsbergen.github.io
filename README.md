@@ -5,5 +5,5 @@
 **Favorite book at the moment:** Getallen zijn je beste vrienden (numbers are your best friends).
 **Favorite cities:** Rome, New York (but this list may change depending on my mood. Today I think Copenhagen is quite nice but things may change when it is raining tomorrow)
 **Favorite formulas:** Maxwell's equations. I will wear them on a T-shirt tomorrow for everyone to admire.
-![http://www.maxwells-equations.com/maxwells-equations.gif]
+![Maxwell's equations)](http://www.maxwells-equations.com/maxwells-equations.gif)
 **Favorite cartoon character:** Spongebob. Really? Yes, really.
