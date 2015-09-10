@@ -11,7 +11,7 @@
 
 **Favorite formulas:** Maxwell's equations. I will wear them on a T-shirt tomorrow for everyone to admire.
 
-![Maxwell's equations)](http://www.maxwells-equations.com/maxwells-equations.gif)
+![Maxwell's equations](http://www.maxwells-equations.com/maxwells-equations.gif)
 
 **Favorite cartoon character:** Spongebob. Really? Yes, really.
 
