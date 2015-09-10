@@ -14,3 +14,5 @@
 ![Maxwell's equations)](http://www.maxwells-equations.com/maxwells-equations.gif)
 
 **Favorite cartoon character:** Spongebob. Really? Yes, really.
+
+![Spongebob](https://camo.githubusercontent.com/c13375a795b6c3c12ad75b1ea6a17477153e8dac/687474703a2f2f696d616765732e68756666696e67746f6e706f73742e636f6d2f323031352d30372d31342d313433363930323536352d363233353031382d53706f6e6765426f625f352e706e67)
